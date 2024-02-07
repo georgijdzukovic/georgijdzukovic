@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @georgijdzukovic
 - 👀 I’m interested in game apps
 - 🌱 I’m currently learning inst
-- i happy man man
-- FEB 6 - 13
+- i happy man man, no woman
+- FEB 7 - 15
