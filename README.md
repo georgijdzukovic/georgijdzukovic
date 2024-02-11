@@ -2,4 +2,4 @@
 - 👀 I’m interested in game apps
 - 🌱 I’m currently learning inst
 - i happy man man, no woman
-- FEB 11 - 20
+- FEBr
