@@ -2,4 +2,4 @@
 - 👀 I’m interested in game apps
 - 🌱 I’m currently learning inst
 - i happy man man, no woman
-- FEBr yes ready work alone
+- FEBr yes ready work alone dast
