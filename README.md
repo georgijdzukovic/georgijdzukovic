@@ -3,3 +3,4 @@
 - 🌱 I’m currently learning inst
 - i happy man man, no woman
 - FEBr yes ready work alone dast2 and manshion
+- cs go
