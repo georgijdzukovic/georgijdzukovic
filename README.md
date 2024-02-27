@@ -5,4 +5,4 @@
 - FEBr yes ready work alone dast2 and manshion
 - cs go de down
 - i am a zksinc rockie role soon
-- pazuha horse
+- pazuha horse power
