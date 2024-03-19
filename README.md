@@ -7,4 +7,4 @@
 - i am a zksinc rockie role soon
 - pazuha horse power and one rpm
 - s kem-to odin doma at home
-- holliday tumuch
+- holliday tumuchen all
