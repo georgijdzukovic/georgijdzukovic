@@ -6,5 +6,5 @@
 - cs go de down underground
 - i am a zksinc rockie role soon
 - pazuha horse power and one rpm
-- s kem-to odin doma at home
+- s kem-to odin doma at homea
 - holliday tumuchen all notice fines
