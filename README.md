@@ -9,4 +9,4 @@
 - 👀 s kem-to odin doma at homa normis
 - holliday tumuchen all notice fines lines
 - 🌱 introvert extravert well gm
-- really expension coat fly
+- really expension coat fly dragon
