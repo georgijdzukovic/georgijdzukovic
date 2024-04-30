@@ -11,4 +11,4 @@
 - 🌱 introvert extravert well gm
 - really expension coat fly dragon thrue
 - plombir ice soda cola  peper
-- 70 drhm reward a lot
+- 70 drhm reward a lot mastodont
