@@ -10,5 +10,5 @@
 - holliday tumuchen all notice fines lines
 - 🌱 introvert extravert well gm
 - really expension coat fly dragon thrue
-- plombir ice soda cola  peper
+- plombir ice soda cola  peper and lite
 - 70 drhm reward a lot mastodont
