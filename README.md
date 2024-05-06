@@ -8,7 +8,7 @@
 - pazuha horse power and one rpm monday
 - 👀 s kem-to odin doma at homa normis
 - holliday tumuchen all notice fines lines
-- 🌱 introvert extravert well gm
+- 🌱 introvert extravert well gm TCL
 - really expension coat fly dragon thrue
 - plombir ice soda cola  peper and lite
 - 70 drhm reward a lot mastodont
