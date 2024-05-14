@@ -11,6 +11,6 @@
 - 🌱 introvert extravert well gm TCL
 - really expension coat fly dragon thrue
 - plombir ice soda cola  peper and lite
-- 70 drhm reward a lot mastodont
+- 70 drhm reward a lot mastodont hungry
 - hekla block floppy entry red type
 - decentralize
