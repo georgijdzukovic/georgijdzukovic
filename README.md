@@ -13,4 +13,4 @@
 - plombir ice soda cola  peper and lite
 - 70 drhm reward a lot mastodont hungry
 - hekla block floppy entry red type
-- decentralize
+- decentralize flowery
