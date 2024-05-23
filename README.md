@@ -15,3 +15,4 @@
 - hekla block floppy entry red type
 - decentralize flowery more
 - cow milk sea play
+- user friendly
