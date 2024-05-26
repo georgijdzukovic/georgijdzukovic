@@ -14,5 +14,5 @@
 - 70 drhm reward a lot mastodont hungry
 - hekla block floppy entry red type
 - decentralize flowery more flowers
-- cow milk sea play
+- cow milk sea play tonnel
 - user friendly
