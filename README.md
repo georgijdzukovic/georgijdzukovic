@@ -6,7 +6,7 @@
 - cs go de down underground do re mi
 - i am a zksinc rockie role soon intern
 - pazuha horse power and one rpm monday
-- 👀 s kem-to odin doma at homa normis
+- 👀 s kem-to odin doma at homa normis people
 - holliday tumuchen all notice fines lines
 - 🌱 introvert extravert well gm TCL
 - really expension coat fly dragon thrue
