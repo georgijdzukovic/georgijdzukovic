@@ -13,6 +13,6 @@
 - plombir ice soda cola  peper and lite
 - 70 drhm reward a lot mastodont hungry
 - hekla block floppy entry red type
-- decentralize flowery more flowers
+- decentralize flowery more flowers banana
 - cow milk sea play tonnel player one
 - user friendly fire boll enki pioneer alliance
