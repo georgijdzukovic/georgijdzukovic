@@ -9,7 +9,7 @@
 - 👀 s kem-to odin doma at homa normis people
 - holliday tumuchen all notice fines lines
 - 🌱 introvert extravert well gm TCL book
-- really expension coat fly dragon thrue
+- really expension coat fly dragon thrue desk
 - plombir ice soda cola  peper and lite
 - 70 drhm reward a lot mastodont hungry
 - hekla block floppy entry red vip type
