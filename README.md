@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @georgijdzukovic
 - 👀 I’m interested in game apps
 - 🌱 I’m currently learning inst about
-- i happy man man, no night woman
+- i happy man man, no night woman bex
 - 👀 murch yes ready work alone dast2 and manshion
 - cs go de down underground do re mi
 - i am a zksinc rockie role soon intern
