@@ -14,6 +14,6 @@
 - 70 drhm reward a lot mastodont hungry
 - hekla block floppy entry red vip type
 - decentralize flowery more flowers banana
-- cow milk sea play tonnel player one
+- cow milk sea play tonnel player one vicy
 - user friendly fire boll enki pioneer alliance
 - kserks fleet storm cook solo
