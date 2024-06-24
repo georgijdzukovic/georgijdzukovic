@@ -11,7 +11,7 @@
 - 🌱 introvert extravert well gm TCL book aethir
 - really expension coat fly dragon thrue desk
 - plombir ice soda cola  peper and lite chart
-- 70 drhm reward a lot mastodont hungry
+- 70 drhm reward a lot duck mastodont hungry
 - hekla block floppy entry red vip type
 - decentralize flowery more flowers banana
 - cow milk sea play tonnel player one vicy
