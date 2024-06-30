@@ -14,6 +14,6 @@
 - 70 drhm reward a lot duck ofcource mastodont hungry
 - hekla block floppy entry red vip type
 - decentralize flowery more flowers banana
-- cow milk sea play tonnel player one vicy
+- cow milk sea play tonnel player one vicy veni
 - user friendly fire boll enki pioneer alliance
 - kserks fleet storm cook solo meet gas complex
