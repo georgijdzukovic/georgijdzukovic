@@ -12,7 +12,7 @@
 - really expension coat fly dragon thrue desk
 - plombir ice soda cola  peper and lite chart trance
 - 70 drhm reward a lot paper duck ofcource mastodont hungry
-- hekla block floppy entry red vip type left
+- hekla block floppy entry red vip type to left
 - decentralize flowery more flowers banana man
 - cow milk sea play tonnel player one vicy veni bool
 - user friendly fire boll enki pioneer alliance hold
